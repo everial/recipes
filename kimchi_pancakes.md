@@ -2,13 +2,13 @@
 
 ## Ingredients
 
-1 cup flour (or kimchi pancake mix)
-1 c kimchi
-1 tsp salt
-1 tsp sugar (or pinch?)
-1/4 c kimchi broth
-3/4 c water
-scallions to taste
+* 1 cup flour (or kimchi pancake mix)
+* 1 c kimchi
+* 1 tsp salt
+* 1 tsp sugar (or pinch?)
+* 1/4 c kimchi broth
+* 3/4 c water
+* scallions to taste
 
 ## Instructions
 
